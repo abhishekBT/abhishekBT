@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abhishekBT
+- 👋 Hi, I’m @abhishek
 - 👀 I’m interested in Creating Something
 - 🌱 I’m currently learning ALL
 - 💞️ I’m looking to collaborate on WORK
